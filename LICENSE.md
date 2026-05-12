@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with binance futures bot custom Automation | price-monitoring & liquidity-provision, the #1 binance futures bot. Includes price-monitoring and
 
 
 
